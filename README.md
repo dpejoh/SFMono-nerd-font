@@ -1,0 +1,1 @@
+# SFMono-nerd-font
